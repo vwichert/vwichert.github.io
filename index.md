@@ -7,6 +7,11 @@ Miss Phryne Fisher is a character from the TV series "Miss Fisher's Murder Myste
 * Wealthy Heiress
 * Pilot and race car driver
 
+
 As the honorable Ms Fisher said:
 > We have a quaint tradition here:
 > The person with the gun asks the questions.
+
+
+<img src="https://programm.ard.de/sendungsbilder/original/035/4818035.57c7e81a-8bb9-4fff-8c4c-061748c86cce.jpeg"/>
+
